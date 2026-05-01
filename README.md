@@ -1,6 +1,8 @@
+<div id="header" align="left"> 
+<img width="126" height="339" alt="Без названия" src="https://github.com/user-attachments/assets/06081c82-4b00-40a1-8b09-70e005b5dcec" />
 
-<div id="header" align="center"> <div id="header" align="left"> 
-࣪⁠⁠  <img width="326" height="639" alt="Без названия" src="https://github.com/user-attachments/assets/06081c82-4b00-40a1-8b09-70e005b5dcec" /> ⁠────я сашка куд мая мама шлюха хихихи⁠⁠────➤ 
+  <div id="header" align="center"> 
+࣪⁠⁠   ⁠────я сашка куд мая мама шлюха хихихи⁠⁠────➤ 
 ࣪
 
 <div id="header" align="left"> 
